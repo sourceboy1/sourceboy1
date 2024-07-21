@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on open-source projects, particularly those involving modern front-end technologies or design systems.
   
-- 📫 How to reach me: [ seunakanni417@gmail.com ]
+- 📫 How to reach me: [insta:sourceboy202   mail:seunakanni417@gmail.com ]
   
 - 😄 Pronouns: [he]
   
